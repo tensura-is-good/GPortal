@@ -1,0 +1,1 @@
+worked for me figure.onrender.com/  try to use my repository  github.com/tensura-is-good/for-rene if it doesnt work best bet is to try to use the is-a.dev domain thing https://discord.gg/is-a-dev-830872854677422150 basically makes a free https link of any dns
